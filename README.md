@@ -1,2 +1,2 @@
 # tutorial
-ASUS sucks
+ASUS and TOIN wins
