@@ -1,3 +1,3 @@
 # tutorial
 ASUS and TOIN wins
-ASUS sucks
+ASUS sucks and sucks
